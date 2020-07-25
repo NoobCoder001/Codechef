@@ -1,1 +1,0 @@
-chup saala
